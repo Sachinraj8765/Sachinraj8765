@@ -4,7 +4,8 @@
 - 💞️ my typing speed 50 wpm
 - 📫 instagram  Elvenzo_raj
       twitter    Sachin_raj_09
-      linkedin    sachin raj             
+      linkedin    sachin raj
+      DM me any time I replyed.
 
 <!---
 Sachinraj8765/Sachinraj8765 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
