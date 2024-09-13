@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ my typing speed 50 wpm.
      I am persuing bca csjm University.
-     Bca final year.
+     Bca Graduate 2023.
 
 <!---
 Sachinraj8765/Sachinraj8765 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
